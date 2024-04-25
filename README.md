@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ishimwe divin
+- 👀 I’m interested in IT software engineering & Networks Communication System
+- 🌱 I’m currently learning Networks Communication System
+- 💞️ I’m looking to collaborate on software engineering & Networks Communication System
+- 📫 How to reach me  use my mail -ishimwedivin2@gmail.com
